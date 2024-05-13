@@ -5,7 +5,7 @@
 - 😄 Pronouns: she/her/hers
 - ⚡ Fun facts:
    - I listen to some form of music everyday.
-   - I have traveled to 8 countries (as of the beginning of 2024) and plan for many more. 
+   - I have traveled to 9 countries (as of the beginning of 2024) and plan for many more. 
 
 <!---
 mfmarson/mfmarson is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
