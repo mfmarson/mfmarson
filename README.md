@@ -4,8 +4,8 @@
 - 📫 How to reach me: megan.marson22@gmail.com
 - 😄 Pronouns: she/her/hers
 - ⚡ Fun facts:
-   - I listen to some form of music everyday.
-   - I have traveled to 9 countries (as of the beginning of 2024) and plan for many more. 
+   - Music and coffee keep me alive. 
+   - I love traveling, 9 countries so far and plenty more to go! 
 
 <!---
 mfmarson/mfmarson is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
