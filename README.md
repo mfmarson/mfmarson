@@ -4,7 +4,7 @@
 - 📫 How to reach me: megan.marson22@gmail.com
 - 😄 Pronouns: she/her/hers
 - ⚡ Fun facts:
-   - Music and coffee keep me alive. 
+   - I run on caffeine and music.
    - I love traveling, 9 countries so far and plenty more to go! 
 
 <!---
