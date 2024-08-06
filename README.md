@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Megan
-- 👀 When I am not at Carolina Code School, I can be found outside enjoying some sun, music, and a good book. 
+- 👀 When I am not coding or learning new development skills, I can be found outside enjoying some sun, music, and a good book. 
 - 🌱 I’m currently studying to be a full-stack developer. 
 - 📫 How to reach me: megan.marson22@gmail.com
 - 😄 Pronouns: she/her/hers
